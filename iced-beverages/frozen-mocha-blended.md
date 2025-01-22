@@ -28,3 +28,7 @@
 ### Step 4
 
 - Topped with whipped cream plus chocolate shavings.
+
+### Step 5
+
+- Make an interesting design pattern.
