@@ -15,7 +15,7 @@
 
 ### Step 1
 
-- Prepare 1 shot of espresso.
+- Prepare 1 shot of espresso classic.
 
 ### Step 2
 
