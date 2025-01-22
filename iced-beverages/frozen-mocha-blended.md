@@ -15,7 +15,7 @@
 
 ### Step 1
 
-- Prepare 1 shot of espresso.
+- Prepare 1 shot of espresso classic.
 
 ### Step 2
 
@@ -24,3 +24,11 @@
 ### Step 3
 
 - Pour blended mixture into 16-oz glass.
+
+### Step 4
+
+- Topped with whipped cream plus chocolate shavings.
+
+### Step 5
+
+- Make an interesting design pattern.
